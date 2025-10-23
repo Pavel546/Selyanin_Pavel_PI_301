@@ -1,1 +1,2 @@
-Hello, Friend! How are you?
+Hello, ay dear Fiend!
+Selyanin Pavel PI301b
