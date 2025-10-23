@@ -1,2 +1,1 @@
-Hello, ay dear Fiend!
-Selyanin Pavel PI301b
+No code No pain
